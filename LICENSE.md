@@ -1,4 +1,4 @@
-
+Enhance Adobe InDesign for macOS with Adobe InDesign for macOS best Plugin: plugin support & UI themes, the #1 plugin. Includes plugin support and UI themes for a smoother and
 
 
 
